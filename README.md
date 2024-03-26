@@ -44,7 +44,7 @@ We would like to express our gratitude to the xat.com community for their contin
 
 ## Contact
 
-Have questions or suggestions? Feel free to reach out to us at [your-email@example.com](mailto:yami.yamo@hotmail.com).
+Have questions or suggestions? Feel free to reach out to us at [SNED MAIL](mailto:yami.yamo@hotmail.com).
 
 ---
 
